@@ -1,0 +1,3 @@
+meenakshi
+hyderbad
+professional skills certifcate
